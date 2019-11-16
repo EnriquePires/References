@@ -1,2 +1,2 @@
 # References
-Some useful files
+Resume and other useful files
