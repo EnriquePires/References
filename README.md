@@ -1,2 +1,2 @@
 # References
-Resume and other useful files
+Resume in English and Spanish. Any useful profile may be found there.
